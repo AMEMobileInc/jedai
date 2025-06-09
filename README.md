@@ -1,1 +1,1 @@
-# jedai is the best
+# jedai is the best of all
